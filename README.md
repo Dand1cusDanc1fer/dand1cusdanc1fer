@@ -16,11 +16,12 @@
 
 ,, i love cuddles ANYTIME!!! so dont be scared , go ahead!.
 
-,, i heart my bf <3
+,, i heart my bf <3  ![image](https://github.com/user-attachments/assets/7d2d7738-07ed-442d-a4a5-cc7686828752)
+
 
 ,,  im an turkish and english speaker , turkish girls int =^_^= 
 
-![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) ![image](https://github.com/user-attachments/assets/4b724182-ad49-4a99-bd6c-b3291ec3dd56)
+![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) 
 
 
 
