@@ -8,6 +8,8 @@
 
 . HE or SHE
 
+,, 💌 ⤷ #  DANDY FICTIONKIN . OTHER DANDY FICTIONKINS INT I BEG!
+
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
 ,, shortly call me snowdropp... ! or dandy ( my fictionkinn :#3 ) but you can call me whatever you want i dont really mind !
