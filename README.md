@@ -1,4 +1,4 @@
-
+![image](https://github.com/user-attachments/assets/efed7b1e-c8c5-4625-a513-fe3b8e092509)
 
 ┆ ⤿ 💌 ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^
 
@@ -18,7 +18,7 @@
 
 ,,  im an turkish and english speaker , turkish girls int =^_^= 
 
-![image](https://github.com/user-attachments/assets/c75e001f-1f4c-4def-9436-d68fd509cec7)
+
 
 <!--
 **Dand1cusDanc1fer/dand1cusdanc1fer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
