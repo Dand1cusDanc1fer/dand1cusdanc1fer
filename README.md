@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/2f9302b3-457f-4614-9830-e382ea7b29dd)
+![image](https://github.com/user-attachments/assets/9ba13583-f086-450c-8406-e1b3c06bc6ca)
 
 
 ┆ ⤿ 💌 ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^
