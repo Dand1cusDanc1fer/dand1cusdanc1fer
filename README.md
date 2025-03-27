@@ -18,6 +18,8 @@
 
 ,,  im an turkish and english speaker , turkish girls int =^_^= 
 
+![image](https://github.com/user-attachments/assets/c75e001f-1f4c-4def-9436-d68fd509cec7)
+
 <!--
 **Dand1cusDanc1fer/dand1cusdanc1fer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
