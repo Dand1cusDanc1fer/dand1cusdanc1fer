@@ -20,7 +20,8 @@
 
 ,,  im an turkish and english speaker , turkish girls int =^_^= 
 
-![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32)
+![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) ![image](https://github.com/user-attachments/assets/4b724182-ad49-4a99-bd6c-b3291ec3dd56)
+
 
 
 
