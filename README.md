@@ -24,9 +24,11 @@
 ,,  im an turkish and english speaker , turkish girls int =^_^= 
 
 ![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) 
-https://i.pinimg.com/originals/92/00/42/920042aef41358c21131b912c1593e25.gif 
+![image](https://github.com/user-attachments/assets/0f2e6f15-2b65-402d-81ee-fa2df270cb63) ![image](https://github.com/user-attachments/assets/3353d0b9-59b1-4766-88c4-d8a6fc93ed07)
 
-THIS VIDEO IS NOT MINE!!! 
+
+
+CREDITS TO CREATOR :: ;; 
 ![image](https://github.com/user-attachments/assets/7ebac83e-a5b4-489e-a0d2-06b454d853a2)
 
 
