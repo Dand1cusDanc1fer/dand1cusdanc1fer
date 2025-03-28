@@ -1,5 +1,7 @@
 
 ![image](https://github.com/user-attachments/assets/04e18489-ab0f-450b-aea0-3724318fe49f)
+![image](https://github.com/user-attachments/assets/d5904b2e-f66f-439f-8a1e-7b274a83853e)
+
 
 
 ┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^   CREDITS TO CREATOR :: ;; 
@@ -26,7 +28,6 @@
 ,,  im an turkish and english speaker , turkish girls int =^_^= 
 
 ![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) 
-![image](https://github.com/user-attachments/assets/0f2e6f15-2b65-402d-81ee-fa2df270cb63) ![image](https://github.com/user-attachments/assets/3353d0b9-59b1-4766-88c4-d8a6fc93ed07)
 
 
 
