@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/1d0ee69b-068e-464c-ab0f-a5ab6a161242)
 
+![image](https://github.com/user-attachments/assets/282a2681-aadb-48cc-ad62-a3dabaadcf0b)
 
-![image](https://github.com/user-attachments/assets/753e346e-fd5e-42eb-bab3-34b9a78dd16f)
 
 ┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^ 
 
