@@ -4,9 +4,7 @@
 
 
 
-┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^   CREDITS TO CREATOR :: ;; 
-![image](https://github.com/user-attachments/assets/7ebac83e-a5b4-489e-a0d2-06b454d853a2)
-
+┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^ 
 
 ,, hey heya there ! ' did the wind take u here ?? haha . not funny.. anyways !! you can call me what prounouns you want but i preferr.. ;;
 
