@@ -1,6 +1,6 @@
-![black Forest cookie widget!!!!!](https://github.com/user-attachments/assets/7b0876be-7a11-4297-8999-7f19c7cdf10a)
+![image](https://github.com/user-attachments/assets/c7b158b5-c409-4051-ad18-7d4aa69daf78)
 
-![image](https://github.com/user-attachments/assets/04e18489-ab0f-450b-aea0-3724318fe49f)
+![image](https://github.com/user-attachments/assets/753e346e-fd5e-42eb-bab3-34b9a78dd16f)
 
 ┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^ 
 
