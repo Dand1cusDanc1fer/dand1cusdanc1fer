@@ -21,7 +21,8 @@
 ,, i heart my bf <3  ![image](https://github.com/user-attachments/assets/7d2d7738-07ed-442d-a4a5-cc7686828752)
 
 
-,,  im an turkish and english speaker , turkish girls int =^_^= 
+,,  im an turkish and english speaker , turkish girls int =^_^=    ![image](https://github.com/user-attachments/assets/dd5ebe0c-326e-475f-bb0b-47a190387122)
+
 
 ![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) 
 
