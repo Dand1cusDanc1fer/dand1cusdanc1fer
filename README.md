@@ -1,4 +1,5 @@
 ![image](https://github.com/user-attachments/assets/1d0ee69b-068e-464c-ab0f-a5ab6a161242)
+ " - But as we know, Pure Vanilla lies quite often, even if it's not a big deal, and Shadow Milk always telling truth, just hide it among the lines. "
 ![427969282-753e346e-fd5e-42eb-bab3-34b9a78dd16f-removebg-preview](https://github.com/user-attachments/assets/f4c46151-0751-4adc-bfc7-b5697033e631)
 
 
