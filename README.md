@@ -1,15 +1,22 @@
-![image](https://github.com/user-attachments/assets/1d0ee69b-068e-464c-ab0f-a5ab6a161242)
- " - But as we know, Pure Vanilla lies quite often, even if it's not a big deal, and Shadow Milk always telling truth, just hide it among the lines. "
-![427969282-753e346e-fd5e-42eb-bab3-34b9a78dd16f-removebg-preview](https://github.com/user-attachments/assets/f4c46151-0751-4adc-bfc7-b5697033e631)
+![image](https://github.com/user-attachments/assets/2e0ef214-71a9-41b9-ac61-2d215812dcbf)
+![image](https://github.com/user-attachments/assets/1ce7c4fe-6e8c-48cc-8f0e-891297559f38)
+
+ - 𝑩𝒖𝒕 𝒂𝒔 𝒘𝒆 𝒌𝒏𝒐𝒘, 𝑷𝒖𝒓𝒆 𝑽𝒂𝒏𝒊𝒍𝒍𝒂 𝒍𝒊𝒆𝒔 𝒒𝒖𝒊𝒕𝒆 𝒐𝒇𝒕𝒆𝒏, 𝒆𝒗𝒆𝒏 𝒊𝒇 𝒊𝒕'𝒔 𝒏𝒐𝒕 𝒂 𝒃𝒊𝒈 𝒅𝒆𝒂𝒍, 𝒂𝒏𝒅 𝑺𝒉𝒂𝒅𝒐𝒘 𝑴𝒊𝒍𝒌 𝒂𝒍𝒘𝒂𝒚𝒔 𝒕𝒆𝒍𝒍𝒊𝒏𝒈 𝒕𝒓𝒖𝒕𝒉, 𝒋𝒖𝒔𝒕 𝒉𝒊𝒅𝒆 𝒊𝒕 𝒂𝒎𝒐𝒏𝒈 𝒕𝒉𝒆 𝒍𝒊𝒏𝒆𝒔."
 
 
-┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! DANDY SPEAKING HERE !! 💮 welcome to my pageee!!!! ^.^ 
+
+┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! UR BIGGEST JESTER SPEAKING HERE!! welcome to my pageee!!!! ^.^ 
 
 ,, hey heya there ! ' did the wind take u here ?? haha . not funny.. anyways !! you can call me what prounouns you want but i preferr.. ;;
 
 . HE or SHE
 
-,, 💌 ⤷ #  DANDY FICTIONKIN . OTHER DANDY FICTIONKINS INT I BEG!
+,, KINS ; 
+
+- Dandy from Dandy's World
+- Black forest cookie from Cookie Run : Kingdom
+- Shadow milk cookie from Cookie Run : Kingdom
+- Sayori from Doki doki literature club!
 
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
@@ -19,14 +26,20 @@
 
 ,, i love cuddles ANYTIME!!! so dont be scared , go ahead!.
 
+,, ZOO PEOPLE , PRO/DARKSHIPPERS AND RACISM DNI IN ANYWAY.
+
 ,, i heart my bf <3  ![image](https://github.com/user-attachments/assets/7d2d7738-07ed-442d-a4a5-cc7686828752)
 
+,, 12 - 13 year old ,, birthday ;; 12 March! 
 
-,,  im an turkish and english speaker , turkish girls int =^_^=    ![image](https://github.com/user-attachments/assets/dd5ebe0c-326e-475f-bb0b-47a190387122)
+,,  im an turkish and english speaker , turkish girls int =^_^=  
+
+,, bisexual / lesbian ,, transphobia people pls dni kindly ^w^
+
+,, 
 
 
-![image](https://github.com/user-attachments/assets/01a43492-89a8-41d6-8dea-8c919b84ed32) 
-
+![tumblr_2168fc3b10d932c031deb31e6c382c2c_833f797a_400](https://github.com/user-attachments/assets/64d7156f-7fb5-45c4-8634-56f0430f2eaa)
 
 
 
