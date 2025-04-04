@@ -9,7 +9,7 @@
 
 ,, hey heya there ! ' did the wind take u here ?? haha . not funny.. anyways !! you can call me what prounouns you want but i preferr.. ;;
 
-. HE or SHE
+. HE or SHE https://static.wikia.nocookie.net/cookierunkingdom/images/5/5a/M80818-battle_ready.gif/revision/latest?cb=20250218035156
 
 ,, KINS ; 
 
@@ -17,10 +17,12 @@
 - Black forest cookie from Cookie Run : Kingdom
 - Shadow milk cookie from Cookie Run : Kingdom
 - Sayori from Doki doki literature club!
+- [![image](https://github.com/user-attachments/assets/907f12f7-92ec-4180-871a-e4793a5b91a6)](https://media.tenor.com/FeGbrjgjx2kAAAPo/sageoftruth-cookie-run-kingdom.mp4)
+
 
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
-,, shortly call me snowdropp... ! or dandy ( my fictionkinn :#3 ) but you can call me whatever you want i dont really mind !
+,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind ! 
 
 ,, always overthink ,, so i recommend not get too comfortable on me unless ur a close friend ! im umcomfortable with thatt..
 
@@ -28,15 +30,13 @@
 
 ,, ZOO PEOPLE , PRO/DARKSHIPPERS AND RACISM DNI IN ANYWAY.
 
-,, i heart my bf <3  ![image](https://github.com/user-attachments/assets/7d2d7738-07ed-442d-a4a5-cc7686828752)
-
-,, 12 - 13 year old ,, birthday ;; 12 March! 
+,, i love interacting w people </3 [ ![image](https://github.com/user-attachments/assets/7d2d7738-07ed-442d-a4a5-cc7686828752)](https://static.wikia.nocookie.net/cookierunkingdom/images/5/5a/M80818-battle_ready.gif/revision/latest?cb=20250218035156)
 
 ,,  im an turkish and english speaker , turkish girls int =^_^=  
 
 ,, bisexual / lesbian ,, transphobia people pls dni kindly ^w^
 
-,, 
+,, bye for now!! thanks for reading my readme, i appreacite it dearly !! byebyee!
 
 
 ![tumblr_2168fc3b10d932c031deb31e6c382c2c_833f797a_400](https://github.com/user-attachments/assets/64d7156f-7fb5-45c4-8634-56f0430f2eaa)
