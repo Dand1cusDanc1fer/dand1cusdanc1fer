@@ -2,9 +2,9 @@
 
 ![image](https://github.com/user-attachments/assets/eca6607b-8f18-4398-82fe-ac76481c4a41)
 
- - 𝑩𝒖𝒕 𝒂𝒔 𝒘𝒆 𝒌𝒏𝒐𝒘, 𝑷𝒖𝒓𝒆 𝑽𝒂𝒏𝒊𝒍𝒍𝒂 𝒍𝒊𝒆𝒔 𝒒𝒖𝒊𝒕𝒆 𝒐𝒇𝒕𝒆𝒏, 𝒆𝒗𝒆𝒏 𝒊𝒇 𝒊𝒕'𝒔 𝒏𝒐𝒕 𝒂 𝒃𝒊𝒈 𝒅𝒆𝒂𝒍, 𝒂𝒏𝒅 𝑺𝒉𝒂𝒅𝒐𝒘 𝑴𝒊𝒍𝒌 𝒂𝒍𝒘𝒂𝒚𝒔 𝒕𝒆𝒍𝒍𝒊𝒏𝒈 𝒕𝒓𝒖𝒕𝒉, 𝒋𝒖𝒔𝒕 𝒉𝒊𝒅𝒆 𝒊𝒕 𝒂𝒎𝒐𝒏𝒈 𝒕𝒉𝒆 𝒍𝒊𝒏𝒆𝒔."
+ - 𝑩𝒖𝒕 𝒂𝒔 𝒘𝒆 𝒌𝒏𝒐𝒘, 𝑷𝒖𝒓𝒆 𝑽𝒂𝒏𝒊𝒍𝒍𝒂 𝒍𝒊𝒆𝒔 𝒒𝒖𝒊𝒕𝒆 𝒐𝒇𝒕𝒆𝒏, 𝒆𝒗𝒆𝒏 𝒊𝒇 𝒊𝒕'𝒔 𝒏𝒐𝒕 𝒂 𝒃𝒊𝒈 𝒅𝒆𝒂𝒍, 𝒂𝒏𝒅 𝑺𝒉𝒂𝒅𝒐𝒘 𝑴𝒊𝒍𝒌 𝒂𝒍𝒘𝒂𝒚𝒔 𝒕𝒆𝒍𝒍𝒊𝒏𝒈 𝒕𝒓𝒖𝒕𝒉, 𝒋𝒖𝒔𝒕 𝒉𝒊𝒅𝒆 𝒊𝒕 𝒂𝒎𝒐𝒏𝒈 𝒕𝒉𝒆 𝒍𝒊𝒆𝒔."
 
-https://github.com/user-attachments/assets/769327c6-6665-41f2-acdc-f142ac0f29f0
+
 
 ┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! UR FAVORITE TRICKSTER SPEAKING HERE!! welcome to my pageee!!!! ^.^ 
 
@@ -22,9 +22,11 @@ https://github.com/user-attachments/assets/769327c6-6665-41f2-acdc-f142ac0f29f0
 
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
-,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind ! 
+,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind !    ![image](https://github.com/user-attachments/assets/43174f25-5211-485d-88f8-d3826a7732d2)
+
 
 ,, always overthink ,, so i recommend not get too comfortable on me unless ur a close friend ! im umcomfortable with thatt..
+
 
 
 
@@ -42,15 +44,15 @@ https://github.com/user-attachments/assets/769327c6-6665-41f2-acdc-f142ac0f29f0
 
 ,,  im an turkish and english speaker , turkish girls int =^_^=  
 
-,, lesbian ,, transphobia people pls dni kindly ^w^ ![image](https://github.com/user-attachments/assets/511484f9-a9af-4c8e-9ef4-dab2bcbd0159)
-
+,, lesbian . transphobia people pls dni kindly ^w^ 
 
 ,, bye for now!! thanks for reading my readme, i appreacite it dearly !! byebyee!
 
+![image](https://github.com/user-attachments/assets/a473ca21-677f-4b24-a66f-13f87c3ce5d6)
 
-![image](https://github.com/user-attachments/assets/3877097f-152a-478d-9ff0-9baf9590b5f1)
 
 
+                 "...see how I learn from you."
 
 
 
