@@ -22,12 +22,14 @@
 
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
-,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind !    ![image](https://github.com/user-attachments/assets/43174f25-5211-485d-88f8-d3826a7732d2)
+,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind !   
 
 
 ,, always overthink ,, so i recommend not get too comfortable on me unless ur a close friend ! im umcomfortable with thatt..
 
 
+
+![image](https://github.com/user-attachments/assets/6f7fcf1b-eade-4add-b791-b08dd83f7080)
 
 
 
@@ -40,7 +42,7 @@
 
 ,, ZOO PEOPLE , PRO/DARKSHIPPERS AND RACISM DNI IN ANYWAY.
 
-,, i love interacting w people </3 [ ![image](https://github.com/user-attachments/assets/7d2d7738-07ed-442d-a4a5-cc7686828752)](https://static.wikia.nocookie.net/cookierunkingdom/images/5/5a/M80818-battle_ready.gif/revision/latest?cb=20250218035156)
+,, i love interacting w people </3 
 
 ,,  im an turkish and english speaker , turkish girls int =^_^=  
 
