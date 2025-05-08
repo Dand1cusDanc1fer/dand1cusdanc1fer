@@ -23,6 +23,8 @@
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
 ,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind !   
+![image](https://github.com/user-attachments/assets/29231aa3-83c9-4742-8f5a-82e7a75228ba)
+
 
 
 ,, always overthink ,, so i recommend not get too comfortable on me unless ur a close friend ! im umcomfortable with thatt..
