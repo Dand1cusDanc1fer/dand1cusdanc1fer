@@ -31,8 +31,6 @@
 
 
 
-![image](https://github.com/user-attachments/assets/6f7fcf1b-eade-4add-b791-b08dd83f7080)
-
 
 
 
