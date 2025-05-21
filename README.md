@@ -29,8 +29,7 @@
 
 ,, always overthink ,, so i recommend not get too comfortable on me unless ur a close friend ! im umcomfortable with thatt..
 
-
-
+,, i swear alot , iwc if it triggers you!
 
 
 ily ray BASHBSHAHSBASOADNASDB ![image](https://github.com/user-attachments/assets/49bc3e5b-b03b-492a-8714-4d12812b2563)
