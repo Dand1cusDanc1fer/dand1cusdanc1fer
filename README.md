@@ -12,6 +12,13 @@
 
 . HE or SHE 
 
+,, ANYWAY IM A SUPERMAN NO CLICKBAIT *shows photos* 
+![image](https://github.com/user-attachments/assets/0a2de149-13b4-4c2b-90cd-25791e99704c)(
+,, ( im actually a kind person actually no jokes on thatf ) 
+
+,, i DO gaf about you ( rare people ) :joy: :joy: :joy: :joy: :joy: :joy: 
+
+
 ,, KINS ; 
 
 - Dandy from Dandy's World
