@@ -6,7 +6,9 @@
 
 
 
-┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! UR FAVORITE TRICKSTER SPEAKING HERE!! welcome to my pageee!!!! ^.^ 
+┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! SNOWDROP SPEAKING HERE welcome to my pageee!!!! ^.^ 
+
+,, you can call me snowdrop , snow etc. but not snowie. snowie is only for ray ok heh....
 
 ,, hey heya there ! ' did the wind take u here ?? haha . not funny.. anyways !! you can call me what prounouns you want but i preferr.. ;;
 
@@ -40,7 +42,7 @@
 
 ,, i broke up w my boyfriend so dont even get me started ok
 
-ily ray BASHBSHAHSBASOADNASDB ![image](https://github.com/user-attachments/assets/49bc3e5b-b03b-492a-8714-4d12812b2563)
+
 
 
 
