@@ -31,7 +31,7 @@
 
 ,, im a painter ! i dont like getting said ;; " its not realistic!! " " its bad eww.. " ,,, etc. so shortly i dont or take rude things u say to me and my art !!
 
-,, shortly call me snowdropp, or any of my fictionkins but you can call me whatever you want i dont really mind !   
+,, im both turkish and english speaker heh... im cool a-amirite..?? g-guys..??
 ![image](https://github.com/user-attachments/assets/29231aa3-83c9-4742-8f5a-82e7a75228ba)
 
 
@@ -54,7 +54,6 @@
 
 ,, i love interacting w people </3 
 
-,,  im an turkish and english speaker , turkish girls int =^_^=  
 
 ,, lesbian . transphobia people pls dni kindly ^w^ 
 
