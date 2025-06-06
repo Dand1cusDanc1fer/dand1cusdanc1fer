@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/347d0173-1d09-4970-9ad7-0a464272cd8e)
+![image](https://github.com/user-attachments/assets/fe3d149f-cb8e-40e3-8b49-9541c36a0fe0)
+
 
 
 ![image](https://github.com/user-attachments/assets/eca6607b-8f18-4398-82fe-ac76481c4a41)
@@ -7,7 +8,7 @@
 
 
 
-┆ ⤿  ✿  ⌗ ;; **Is this thing on? hah.. FINALLY!! SNOWDROP SPEAKING HERE welcome to my pageee!!!! ^.^ 
+ **Is this thing on?** hah.. FINALLY!! SNOWDROP SPEAKING HERE welcome to my pageee!!!! ^.^ 
 
 ,, you can call me snowdrop , snow etc. but not snowie. snowie is only for ray ok heh....
 
