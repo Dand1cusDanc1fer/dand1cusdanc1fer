@@ -12,10 +12,9 @@
 
 ,, you can call me snowdrop , snow etc. but not snowie. snowie is only for ray ok heh....
 
-,, hey heya there ! ' did the wind take u here ?? haha . not funny.. anyways !! you can call me what prounouns you want but i preferr.. ;;
+,, hey heya there ! ' did the wind take u here ?? haha . not funny.. anyways !! my pronouns are any, i dont mind but i prefer ;
 
-. HE or SHE 
-
+. star / starself or she / her
 ,, ANYWAY IM A SUPERMAN NO CLICKBAIT *shows photos* 
 ![image](https://github.com/user-attachments/assets/0a2de149-13b4-4c2b-90cd-25791e99704c)(
 ,, ( im actually a kind person actually no jokes on thatf ) 
@@ -42,7 +41,8 @@
 
 ,, i swear alot , iwc if it triggers you!
 
-,, i broke up w my boyfriend so dont even get me started ok
+,, i ABSOLUTELY FW MIU URIMA FANS oHMYYY
+![image](https://github.com/user-attachments/assets/120964cd-8fb4-45cb-89ad-a5d6f2a3aa34)
 
 
 
@@ -56,17 +56,11 @@
 
 ,, i love interacting w people </3 
 
-
 ,, lesbian . transphobia people pls dni kindly ^w^ 
 
+,, mrrrrppp :3 my discord;; dandicusdancifer_
+
 ,, bye for now!! thanks for reading my readme, i appreacite it dearly !! byebyee!
-
-![image](https://github.com/user-attachments/assets/a473ca21-677f-4b24-a66f-13f87c3ce5d6)
-
-
-
-                 "...see how I learn from you."
-
 
 
 
